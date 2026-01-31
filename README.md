@@ -1,1 +1,0 @@
-# pequenos-privacy-policy
